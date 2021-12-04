@@ -1,0 +1,4 @@
+- 👋 nubi 👋
+- 💞️ Im working at osu!Nubi :D
+- 📫 cr4cked b1tch#0187
+- 👀 https://osu.nubi.ml
